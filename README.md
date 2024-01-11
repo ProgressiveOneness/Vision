@@ -22,8 +22,8 @@ You can start aligning with our vision in several ways:
 
 ## Stay Connected
 
-Join the conversation and become an active part of our growing community. Share your ideas, ask questions, and connect with others who are passionate about our vision. Visit [Progressive Oneness Discussions](https://github.com/ProgressiveOneness/.github/discussions) to engage with us and fellow visionaries.
+Join the conversation and become an active part of our growing community. Share your ideas, ask questions, and connect with others who are passionate about our vision. Visit [Progressive Oneness Discussions](https://github.com/ProgressiveOneness/Vision/discussions) to engage with us and fellow visionaries.
 
-Additionally, explore the [Progressive Oneness Network](https://github.com/ProgressiveOneness/.github/network) to discover a range of projects aligned with our vision. It's a great way to see the impact of our collective efforts and to find opportunities for collaboration.
+Additionally, explore the [Progressive Oneness Network](https://github.com/ProgressiveOneness/Vision/network) to discover a range of projects aligned with our vision. It's a great way to see the impact of our collective efforts and to find opportunities for collaboration.
 
 We look forward to seeing you there and collaborating on shaping a unified and progressive future!
