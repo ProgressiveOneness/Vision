@@ -2,11 +2,11 @@
 
 ## Core Values and Beliefs
 
-We recognize the interconnectedness of all beings, understanding that our existence is part of a larger, unified whole. Through positive thoughts, words, and actions, we strive to shape a different reality. Our journey is one of continuous learning and evolution, where we cherish the present and are committed to creating change from within.
+We recognize the interconnectedness of all beings, understanding that our existence is part of a larger, unified whole. Through positive thoughts, words, and actions, we strive to shape a different reality. Our journey is one of continuous learning and evolution, where we cherish the present, fall in love with the process, and are committed to creating change from within.
 
 ## Purpose
 
-Serve as a role model for society, embodying authenticity and manifesting a reality aligned with the immense capabilities of humankind. By leading through example, the aim is to inspire and catalyze transformation, illustrating that a life of harmony and sustainability, rooted in self-evolution, is not only possible but essential. This path seeks to guide and empower individuals and communities on their growth journeys, forging a future where personal development harmonizes with collective progress.
+To serve as a role model for ourselves, and then society, embodying authenticity and manifesting a reality aligned with the immense capabilities of humankind. By leading through example, our aim is to inspire and catalyze transformation, illustrating that a life of harmony and sustainability, rooted in self-evolution, is not only possible but essential. This journey is about guiding and empowering ourselves and others, forging a future where personal development harmonizes with collective progress. Our ultimate purpose is to help us realize that we are all the same and unique universal being.
 
 ## Mission
 
